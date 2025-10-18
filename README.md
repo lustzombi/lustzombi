@@ -1,4 +1,4 @@
-JINXED
+![alt text](0f579d77acfee2e3cf28ddfc4cf0586d.jpg)
 
  ┆彡 . scythe!!
 
