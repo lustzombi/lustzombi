@@ -1,14 +1,3 @@
-![alt text](0f579d77acfee2e3cf28ddfc4cf0586d.jpg)
+![alt text](Untitled17_20251018214313.png)
 
- ┆彡 . scythe!!
-
-xe / he / pow
-
- ![alt text](0f579d77acfee2e3cf28ddfc4cf0586d.jpg)
-
- `✦ˑ ִֶ 𓂃⊹ genderfaun lesbian
-
-.   i heart silver
-
-         
    
